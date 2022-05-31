@@ -1,5 +1,5 @@
-# 美国骗局
-© Anti United
+# 美国骗局  
+anti united
 
 [2021美国侵犯人权报告](/post/2021年美国侵犯人权报告.md)
 
